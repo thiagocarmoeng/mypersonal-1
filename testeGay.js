@@ -1,1 +1,0 @@
-// o leandro é um gay, deleto meu projeto!
